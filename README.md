@@ -113,7 +113,7 @@ Yes. While based locally, we support surrounding areas and regional distribution
 
 ## Request a Quote Today
 
-Whether you need a dependable [**corrugated box supplier long beach near me**](https://www.bluerosepackaging.com/location/long-beach/buy-wholesale-shipping-tapes-near-me-in-long-beach/) or a full-service partner for **custom corrugated box solutions long beach**, Bluerose Packaging is ready to support your business.
+Whether you need a dependable [**corrugated box supplier long beach near me**](https://www.bluerosepackaging.com/location/long-beach/buy-wholesale-custom-corrugated-boxes-near-me-in-long-beach)) or a full-service partner for **custom corrugated box solutions long beach**, Bluerose Packaging is ready to support your business.
 
 **Request a quote today** to discuss specifications, pricing, and production timelines for your corrugated packaging needs.
 
